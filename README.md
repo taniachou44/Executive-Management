@@ -19,3 +19,7 @@ Insights from my presentation have the potential to
 significantly reduce overall operational costs by approximately
 10%.
 
+
+
+
+
